@@ -1,0 +1,1 @@
+tbh. wrote this so long ago, can't really remember the thought behind it or how to use it. I will update when I have read up on it again in some of the scripts that is using it.
